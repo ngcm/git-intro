@@ -14,7 +14,7 @@ change2
 
 ## Week 5 (31 October 2016)
 
-* Numerical Methods Class Test
+
 
 ## Week 6 (7 November 2016)
 
@@ -24,7 +24,7 @@ change2
 
 ## Week 8 (21 November 2016)
 
-* Numerical Methods Coursework 1
+
 
 ## Week 9 (28 November 2016)
 
@@ -34,7 +34,7 @@ change2
 
 ## Week 11 (12 December 2016)
 
-* Numerical Methods Coursework 2
+
 
 ## Week 12 (9 January 2017)
 
