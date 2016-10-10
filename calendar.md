@@ -2,10 +2,12 @@
 
 ## Week 1 (3 October 2016)
 
-*dhsadjhsad
+* dhsadjhsad
+* An evening full of cake
 
 ## Week 2 (10 October 2016)
 
+Satanic Ritual
 
 ## Week 3 (17 October 2016)
 
@@ -19,6 +21,7 @@
 
 ## Week 6 (7 November 2016)
 
+* Strategic Advisory Board.
 
 ## Week 7 (14 November 2016)
 
