@@ -5,6 +5,7 @@
 
 ## Week 2 (10 October 2016)
 
+* Buy a monkey *
 
 ## Week 3 (17 October 2016)
 
