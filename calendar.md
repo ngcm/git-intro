@@ -5,6 +5,7 @@
 
 ## Week 2 (10 October 2016)
 
+Satanic Ritual
 
 ## Week 3 (17 October 2016)
 
