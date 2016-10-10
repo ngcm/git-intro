@@ -18,6 +18,7 @@
 
 ## Week 6 (7 November 2016)
 
+* Strategic Advisory Board.
 
 ## Week 7 (14 November 2016)
 
