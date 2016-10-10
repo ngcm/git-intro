@@ -2,6 +2,7 @@
 
 ## Week 1 (3 October 2016)
 
+*dhsadjhsad
 
 ## Week 2 (10 October 2016)
 
