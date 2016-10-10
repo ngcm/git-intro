@@ -17,7 +17,7 @@
 * Numerical Methods Class Test
 
 ## Week 6 (7 November 2016)
-
+* something
 
 ## Week 7 (14 November 2016)
 
