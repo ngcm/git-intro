@@ -2,6 +2,7 @@
 
 ## Week 1 (3 October 2016)
 
+* An evening full of cake
 
 ## Week 2 (10 October 2016)
 
