@@ -14,6 +14,7 @@ Satanic Ritual
 
 ## Week 4 (24 October 2016)
 
+* Pub trip
 
 ## Week 5 (31 October 2016)
 
