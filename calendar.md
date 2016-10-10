@@ -10,6 +10,7 @@ Satanic Ritual
 
 ## Week 3 (17 October 2016)
 
+* Test
 
 ## Week 4 (24 October 2016)
 
