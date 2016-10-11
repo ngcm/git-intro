@@ -2,7 +2,7 @@
 
 ## Week 1 (3 October 2016)
 
-* dhsadjhsad
+* Witty commit message workshop
 * An evening full of cake
 
 ## Week 2 (10 October 2016)
@@ -11,9 +11,11 @@ Satanic Ritual
 
 ## Week 3 (17 October 2016)
 
+* Test
 
 ## Week 4 (24 October 2016)
 
+* Pub trip
 
 ## Week 5 (31 October 2016)
 
